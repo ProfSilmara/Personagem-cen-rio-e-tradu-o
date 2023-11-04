@@ -1,0 +1,1 @@
+# Personagem-cen-rio-e-tradu-o
